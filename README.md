@@ -1,0 +1,2 @@
+# electronics_calculator_pro_privacy_policy
+Privacy Policy for Electronics Calculator Pro
